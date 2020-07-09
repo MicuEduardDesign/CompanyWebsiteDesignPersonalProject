@@ -1,7 +1,1 @@
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
-# CompanyWebsiteDesignPersonalProject
+VISIT THE WEBSITE AT: https://micueduarddesign.github.io/CompanyWebsiteDesignPersonalProject/
